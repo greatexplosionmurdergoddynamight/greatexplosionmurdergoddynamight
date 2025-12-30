@@ -1,1 +1,1 @@
-![bill-cipher-gravity-falls](https://github.com/user-attachments/assets/2ff949a7-e2b3-4864-bb3c-b8379bbefeb8)
+![tnt-minceraft-tnt](https://github.com/user-attachments/assets/d91c14c4-29aa-4894-96c4-430478483c8d)
